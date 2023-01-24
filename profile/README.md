@@ -1,4 +1,4 @@
-![Magello Group Logotype](/img/logotype.png)
+![Magello Group Logotype](/profile/img/logotype.png)
 
 # 🚀 Nya möjligheter på Magello Group!
 
